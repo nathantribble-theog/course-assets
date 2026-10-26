@@ -125,15 +125,11 @@ Speaker notes: Before anyone buys, a marketing message has to get through four s
 
 ---
 
-# Case Study: "Got Milk?" — Beyoncé
-
 ![Got Milk? ad featuring Beyoncé and Tina Knowles](https://raw.githubusercontent.com/nathantribble-theog/course-assets/main/marketing-101/images/12-got-milk-beyonce.jpg)
 
 Speaker notes: Next is one of the most famous campaigns in advertising history. The pitch here is simple: want to be beautiful like Beyoncé? Drink milk. Yep, that's it. Milk. Notice the iconic milk mustache. It's a little absurd, which makes it memorable. Here she's pictured with her mother, Tina Knowles, so the ad is aimed at mothers and daughters. Let the ad land, then ask: who is the target customer here, and what is this ad really selling?
 
 ---
-
-# "Got Milk?" — Kate Moss
 
 ![Milk ad featuring Kate Moss](https://raw.githubusercontent.com/nathantribble-theog/course-assets/main/marketing-101/images/13-milk-kate-moss.jpg)
 
@@ -141,15 +137,11 @@ Speaker notes: Apparently, calcium is the secret to looking like Kate Moss. Same
 
 ---
 
-# "Got Milk?" — Britney Spears
-
 ![Got Milk? ad featuring Britney Spears: Grow up](https://raw.githubusercontent.com/nathantribble-theog/course-assets/main/marketing-101/images/14-got-milk-britney-spears.jpg)
 
 Speaker notes: Want to grow up to be tall like Britney Spears? Drink milk. The "Grow up" headline and the little girl dressed like Britney target kids and their parents at the height of her fame. This is a classic aspirational appeal: link the product to someone the audience wants to be like.
 
 ---
-
-# "Got Milk?" — Tom Brady, and Why the Campaign Worked
 
 ![Got Milk? ad featuring Tom Brady](https://raw.githubusercontent.com/nathantribble-theog/course-assets/main/marketing-101/images/15-got-milk-tom-brady.jpg)
 
@@ -162,15 +154,11 @@ Speaker notes: Tom Brady likes his milk with ice. Maybe you can be the GOAT too?
 
 ---
 
-# When Marketing Backfires: Reebok, Germany 2012
-
 ![Reebok ad: Cheat on your girlfriend, not on your workout](https://raw.githubusercontent.com/nathantribble-theog/course-assets/main/marketing-101/images/16-reebok-cheat-ad.jpg)
 
 Speaker notes: In March 2012, Reebok put up this ad in partner gyms in Germany: "Cheat on your girlfriend, not on your workout." It went viral for all the wrong reasons. Thousands of complaints poured in, and Reebok took it down. Connect this to the four stages: the ad nailed exposure and attention, but it badly misjudged perception. The creative team saw an edgy joke about commitment to fitness. Much of the audience saw it as endorsing infidelity and alienating women, a huge share of Reebok's customers. Lesson: when an ad goes viral, you lose control of who sees it. Always ask how your message reads to people outside your intended audience. Discussion: was this a targeting failure, a positioning failure, or both?
 
 ---
-
-# Place as Promotion: Bonux Bus-Top Ads in Lebanon
 
 ![Bonux detergent ads painted on bus roofs, seen from above](https://raw.githubusercontent.com/nathantribble-theog/course-assets/main/marketing-101/images/17-bonux-bus-top-ads.jpg)
 

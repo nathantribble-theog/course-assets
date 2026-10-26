@@ -200,11 +200,12 @@ Speaker notes: Here's why positioning matters to the bottom line. Nissan brings 
 
 ---
 
-# Porsche in Action
+# Nissan: A Brand Without a Clear Story
+Brie Larson races through decades of Nissan models — but what does Nissan stand for?
 
 https://www.youtube.com/watch?v=StAPejF7KI8
 
-Speaker notes: Let's watch how Porsche markets itself today. While it plays, notice who the ad is aimed at, what feelings it creates, and which of the four decision types it targets. Hint: this is not a utilitarian pitch. Afterward, ask students what Porsche is really selling. Is it transportation, or freedom, status, and identity?
+Speaker notes: This is Nissan's ad featuring Brie Larson, racing through the history of Nissan vehicles: sports cars, trucks, SUVs, EVs, family cars. It's fun and well produced, but watch it with our STP lens. Who is this ad for? What single idea should you remember about Nissan afterward? Nissan tries to be everything to everyone: performance, value, utility, electric, family. When a brand stands for everything, it stands for nothing in particular. That lack of focus shows up in the numbers we just saw: nearly twice Porsche's revenue but a fraction of its profit. After the video, ask students to describe Nissan in one word, and notice how many different answers you get. Hold that thought, because the Porsche ad coming up is the deliberate contrast.
 
 ---
 
@@ -219,11 +220,12 @@ Speaker notes: These classic print ads show Porsche's positioning in action. "No
 
 ---
 
-# Porsche: The Brand Today
+# Porsche: A Legacy That Stays on Brand
+Decades of history, one consistent identity.
 
 https://www.youtube.com/watch?v=fc4HREdPHvI
 
-Speaker notes: Let's close with one more Porsche film. As you watch, connect it to everything we covered today. The 3Cs: who is Porsche's customer, what are its strengths, and who are its competitors? STP: which segment does this target, and how is Porsche positioned? The 4Ps: what do the product, price, place, and promotion say about the brand? And consumer behavior: is this a utilitarian, hedonic, or ego-expressive purchase?
+Speaker notes: Now compare Nissan's ad with this one. Porsche also tells its history, but every chapter reinforces the same story: performance, racing heritage, engineering, and the iconic 911 silhouette, carried forward for decades. Nissan's history felt like a list of unrelated products. Porsche's feels like one brand evolving with discipline. That's positioning done right: a well-defined identity, a carefully chosen segment, and the patience to stay on brand. It's also why Porsche is the world's most valuable luxury brand and earns roughly five times Nissan's profit margin. After the video, ask students to describe Porsche in one word and compare how consistent the answers are with the Nissan exercise. Then connect it to the 3Cs, STP, and 4Ps.
 
 ---
 
